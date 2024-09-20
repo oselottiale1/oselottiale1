@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @oselottiale1
 - 🌱 I’m currently learning unreal engine and blender
-- 📫 My email is aleksi.piitulainen@outlook.com
+- 📫 If you want to reach me email to my email aleksi.piitulainen@outlook.com
 - 😄 Pronouns: he/him
 
